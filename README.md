@@ -11,4 +11,4 @@
 
 `✨` NameMC: [Мой minecraft-аккаунт](https://ru.namemc.com/profile/bobby5415_)
 
-`✨` Discord: [bobby5415_](https://тыдумалздесьчто-тобудет/)
+`✨` Discord: [aBobbyyyy](https://тыдумалздесьчто-тобудет/)
